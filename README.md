@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jagadish Gowda
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ... Robotics 
 - 🌱 I’m currently learning ...Artificial Intellegence 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... 7338003994
